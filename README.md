@@ -8,3 +8,7 @@ I am also here to learn more about programmers and find talented coders looking 
 When you're looking for a job, have you ever heard it isn't about what you know, it's about who you know? At HireNetworks, it is about who we know.
 
 Call me at nine-one-nine, nine-eight-one-six-two-zero-zero extension 320 to find out how our networks can help you.
+
+Or you know, just email me a funny picture of your dog. That'd be nice too.
+
+
